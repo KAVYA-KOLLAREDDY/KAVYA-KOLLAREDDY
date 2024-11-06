@@ -26,5 +26,9 @@
 ### 😄 Pronouns
 - She/Her
 
+### websites
+->Linkedin  - https://www.linkedin.com/in/kavya-kollareddy
+-> Github   - https://github.com/KAVYA-KOLLAREDDY
+
 
 
